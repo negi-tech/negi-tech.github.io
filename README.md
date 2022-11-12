@@ -1,1 +1,0 @@
-# negi-tech.github.io
